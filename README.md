@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SuprimKhatri77
-- 🌱 I’m currently learning frontend development
+- 🌱 Soooon..
 
 
 
